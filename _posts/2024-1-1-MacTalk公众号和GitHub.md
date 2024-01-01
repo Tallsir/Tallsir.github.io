@@ -31,4 +31,4 @@
 在哪一步应该让技术停下来？
 
 GitHub上的Trending 板块korean板块很少，中文社区和英文社区都不少。
-[i love you ](https://www.kugou.com/mixsong/1rgth97a.html)
+[i love you ](https://music.163.com/#/song?id=405333234&market=baiduqk)
